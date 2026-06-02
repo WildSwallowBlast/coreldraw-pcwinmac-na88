@@ -1,4 +1,4 @@
-# 
+# Principal CorelDRAW filtros para Mac OS | Oficial CorelDRAW filtros para PC Windows. Con estilos de párrafo y gestión de capas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
